@@ -6,4 +6,4 @@ Cheapest proxy on the proxy market. Still pretty beginner but gets the job dont.
 
 
 
-I wont share Source code unless u buy it.
+I wont share Source code unless u buy the source code.
